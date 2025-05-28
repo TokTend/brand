@@ -47,7 +47,7 @@ To request permissions or report misuse, contact:
 
 - [TokTend.com](https://toktend.com) – Official site  
 - [License – CC BY-NC-ND 4.0](https://creativecommons.org/licenses/by-nc-nd/4.0/)  
-- [Copyrighted.com Record](https://copyrighted.com/) *(add your link here)*
+- [Copyrighted.com Record](https://copyrighted.com/) *(https://app.copyrighted.com/work/LLEJ0NKpGlO9a2AS/)
 
 ---
 
